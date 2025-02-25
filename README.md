@@ -7,3 +7,11 @@
 ![FindPeopleAnimationDoc-PDF 003](https://github.com/user-attachments/assets/b1fc5614-73dc-4aed-a729-3fbb5128577d)
 
 ![FindPeopleAnimationDoc-PDF 038](https://github.com/user-attachments/assets/56a8c3aa-d89e-4f26-9423-e34b9c3070cf)
+
+# Below URL for finding full details - (Text or Video form)
+
+# Youtube url: https://www.youtube.com/watch?v=qi_QyGE4YAI
+
+# Linkedin Profile: https://www.linkedin.com/in/sumit-chahar-2956a513b/
+
+# Medium link: https://medium.com/p/695d12809b83
